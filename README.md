@@ -13,6 +13,6 @@ I don't talk much when I'm not yet comfortable with someone, but that changes wh
 
 
 
-DNI:darkshipper,or ppl with weirds head canon on characters y'all make me uncomfortable 
+DNI:darkshipper,or ppl with weirds head canon or 🍇pists on characters y'all make me uncomfortable 
 any hazbin hotel, or helluva boss fans i was in that fandom before some of you guys are weird
 people who harass or doxx ppl for a fictional ship/or for not liking a character,if you're a fan of weird media like andy and leyley or no mercy please dont you ever even touch my profile 
